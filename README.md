@@ -1,4 +1,7 @@
 ## Hi there 👋
+hello I am eating way too many apples a day and it is effecting my ability to live a normal life. please help!
+**name**: *finndabinfordawinlookin'likearollingpin*
+
 
 <!--
 **finnjam14/finnjam14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
